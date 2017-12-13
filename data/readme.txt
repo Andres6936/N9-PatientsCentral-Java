@@ -1,0 +1,1 @@
+Header Image taken from: http://www.cartellaclinicabracco.it/cm/img/img_home.gif
